@@ -1,1 +1,1 @@
-# digital-achaia
+# Digital Achaia
